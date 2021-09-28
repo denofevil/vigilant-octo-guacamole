@@ -16,7 +16,7 @@ Octo!
 Quattro?
 Octo!
 
-Octo?
+Quattro?
 Octo!
 
 Octo?
