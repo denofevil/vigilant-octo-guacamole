@@ -13,7 +13,7 @@ Did we mention how vigilant it is?
 Quattro?
 Octo!
 
-Octo?
+Quattro?
 Octo!
 
 Octo?
