@@ -10,14 +10,3 @@ Guacamole!
 
 Did we mention how vigilant it is?
 
-Quattro?
-Octo!
-
-Quattro?
-Octo!
-
-Quattro?
-Octo!
-
-Quattro?
-Octo!
